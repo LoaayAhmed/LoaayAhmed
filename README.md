@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **lololllloaay12@gmail.com**
 
-- 📄 Know about my experiences [linkedin.com/in/loaay-ahmed-847491280](https://www.linkedin.com/in/loaay-ahmed-847491280/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/loaay-ahmed-847491280/](https://www.linkedin.com/in/loaay-ahmed-847491280/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
